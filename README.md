@@ -6,3 +6,6 @@ Content that I liked. Saved using https://goo.gl/Wj595G
 
 ### August 12, 2016
 - [پاکستانی بچوں کو کون اور کس شہرسے بیرون ملک سمگل کررہاتھا؟ایف آئی اے کی ٹیم ایجنٹ کی گرفتاری کیلئے روانہ](http://dailypakistan.com.pk/islamabad/12-Aug-2016/428223) 
+
+### August 14, 2016
+- [Personal Access Tokens](https://github.com/settings/tokens) 
