@@ -9,3 +9,6 @@ Content that I liked. Saved using https://goo.gl/Wj595G
 
 ### August 14, 2016
 - [Personal Access Tokens](https://github.com/settings/tokens) 
+
+### September 17, 2016
+- [Copyright is not a divine right: Delhi HC - Times of India](http://timesofindia.indiatimes.com/city/delhi/Copyright-is-not-a-divine-right-Delhi-HC/articleshow/54372014.cms) 
