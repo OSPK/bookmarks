@@ -22,3 +22,4 @@ Content that I liked. Saved using https://goo.gl/Wj595G
 - [Bill Clinton Stirs Up More Hillary Health Speculation by Blurting Out Illness We Haven't Heard Yet](http://ijr.com/2016/09/694467-bill-clinton-stirs-up-more-hillary-health-speculation-by-blurting-out-illness-we-havent-heard-yet/) 
 - [Abducted Woman Calls 911 as Alleged Captor Sleeps – Leading to Discovery of 3 More Bodies](https://www.yahoo.com/news/abducted-woman-calls-911-alleged-143311862.html) 
 - [Turkish man protests European democracy by walking backwards - BizarreTurkey.com](https://bizarreturkey.com/turkish-man-protests-european-democracy-walking-backwards/) 
+- [Ex-lawyer pleads guilty to hypnotizing women for sexual pleasure, faces 12-year sentence](http://www.abajournal.com/news/article/ex-lawyer_pleads_guilty_to_hypnotizing_clients_for_sexual_pleasure/?utm_source=maestro&utm_medium=email&utm_campaign=weekly_email) 
