@@ -23,3 +23,6 @@ Content that I liked. Saved using https://goo.gl/Wj595G
 - [Abducted Woman Calls 911 as Alleged Captor Sleeps – Leading to Discovery of 3 More Bodies](https://www.yahoo.com/news/abducted-woman-calls-911-alleged-143311862.html) 
 - [Turkish man protests European democracy by walking backwards - BizarreTurkey.com](https://bizarreturkey.com/turkish-man-protests-european-democracy-walking-backwards/) 
 - [Ex-lawyer pleads guilty to hypnotizing women for sexual pleasure, faces 12-year sentence](http://www.abajournal.com/news/article/ex-lawyer_pleads_guilty_to_hypnotizing_clients_for_sexual_pleasure/?utm_source=maestro&utm_medium=email&utm_campaign=weekly_email) 
+
+### October 1, 2016
+- [Acceptance for boys dropping out | NHH](https://www.nhh.no/en/research/research-news/article-archive/2016/september/greater-acceptance-for-men-dropping-out/) 
