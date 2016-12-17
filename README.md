@@ -26,3 +26,6 @@ Content that I liked. Saved using https://goo.gl/Wj595G
 
 ### October 1, 2016
 - [Acceptance for boys dropping out | NHH](https://www.nhh.no/en/research/research-news/article-archive/2016/september/greater-acceptance-for-men-dropping-out/) 
+
+### December 17, 2016
+- [What To Do When Your Teeth Get Knocked Out Because You Fell Clipping With the Rope in Your Mouth | Steph Davis - High Places](http://stephdavis.co/blog/what-to-do-when-your-teeth-get-knocked-out-because-you-fell-clipping-with-the-rope-in-your-mouth/) 
