@@ -29,3 +29,6 @@ Content that I liked. Saved using https://goo.gl/Wj595G
 
 ### December 17, 2016
 - [What To Do When Your Teeth Get Knocked Out Because You Fell Clipping With the Rope in Your Mouth | Steph Davis - High Places](http://stephdavis.co/blog/what-to-do-when-your-teeth-get-knocked-out-because-you-fell-clipping-with-the-rope-in-your-mouth/) 
+
+### March 16, 2017
+- [HTTP Client Proxy Configuration | Rotating Anonymous IP Proxy Servers](https://proxymesh.com/http-client-examples/) 
