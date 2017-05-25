@@ -32,3 +32,6 @@ Content that I liked. Saved using https://goo.gl/Wj595G
 
 ### March 16, 2017
 - [HTTP Client Proxy Configuration | Rotating Anonymous IP Proxy Servers](https://proxymesh.com/http-client-examples/) 
+
+### May 25, 2017
+- [Cliparts from Firkin](https://openclipart.org/user-cliparts/Firkin?page=34) 
